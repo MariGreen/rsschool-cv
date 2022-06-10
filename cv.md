@@ -1,6 +1,6 @@
 ## Marina Grishina
 
-![пока вместо фото](https://kipmu.ru/wp-content/uploads/blkintfkt.jpg)
+![пока вместо фото](https://i.pinimg.com/236x/de/ff/75/deff7531381d41422e5e9191e05d4503--messages-bugs.jpg)
 
 +7 999 99-99-99
 
